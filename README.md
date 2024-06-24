@@ -1,0 +1,2 @@
+# Privacy
+GPT Privacy Policy
